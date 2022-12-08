@@ -1,1 +1,1 @@
-Collaborator: Justin Stouffer, Username: Jstouffer33, *edit*
+Collaborator: Justin Stouffer, Username: Jstouffer33
